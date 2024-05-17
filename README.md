@@ -1,0 +1,2 @@
+# Alternatives-to-Overpriced-Permanent-Life-Insurance
+Permanent life insurance typically costs more in premiums and has greater complexity than term life insurance. Term life generally fits Canadians' temporary needs better at a lower price. Discover why permanent life insurance may not make sense for many people.   Read more: https://bestinsuranceonline.ca/why-permanent-life-insurance-is-not-right/
